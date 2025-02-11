@@ -7,8 +7,11 @@ An Amazon Gift Card is a prepaid digital or physical card that can be used to pu
 
 Key Features:
 ▪ No Expiration Date – Use it whenever you want.
+
 ▪ Wide Usability – Redeem on Amazon for electronics, books, fashion, and more.
+
 ▪ Customizable – Choose from digital, print-at-home, or physical cards with unique designs.
+
 ▪ Instant Delivery – Digital gift cards can be delivered instantly via email or text.
 
 Perfect for birthdays, holidays, or just as a thoughtful gift, an Amazon Gift Card gives the recipient the freedom to buy exactly what they want! 🎁✨
